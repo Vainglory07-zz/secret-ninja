@@ -9,3 +9,8 @@ https://www.youtube.com/watch?t=540&v=mBx2Bu-jnOs
 
 <h4>Reads</h4>
 http://vendyxiao.com/blood-type-personality-comic-part-1/ <br />
+
+<hr />
+
+<h4>Opinions</h4>
+https://www.youtube.com/watch?t=497&v=sGXTF6bs1IU
