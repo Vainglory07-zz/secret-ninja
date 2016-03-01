@@ -9,6 +9,8 @@ https://www.youtube.com/watch?t=540&v=mBx2Bu-jnOs
 
 <h4>Reads</h4>
 http://vendyxiao.com/blood-type-personality-comic-part-1/ <br />
+https://medium.com/@noahbradley/how-i-became-an-artist-4390c6b6656c#.8sjp5s5t9 <br />
+https://www.reddit.com/r/gamingrigs/comments/3uk0i5/gaming_rig_gpu_recommendations/ <br />
 
 <hr />
 
