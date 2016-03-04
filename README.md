@@ -20,6 +20,6 @@ https://www.youtube.com/watch?t=497&v=sGXTF6bs1IU
 <hr />
 
 <h4>Robotics</h4>
-http://www.circuit-help.com.ph/
-http://www.instructables.com/id/The-Drone-Pi/
-https://www.quora.com/Whats-the-best-way-to-start-learning-robotics
+http://www.circuit-help.com.ph/ <br />
+http://www.instructables.com/id/The-Drone-Pi/ <br />
+https://www.quora.com/Whats-the-best-way-to-start-learning-robotics <br />
